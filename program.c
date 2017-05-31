@@ -1,1 +1,1 @@
-kanazawaaaaaaaaaa
+kanazawa-ishikawa
